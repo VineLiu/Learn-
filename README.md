@@ -3,6 +3,8 @@
 
 如何才能高效学习，99%的人不知道的高效学习法 免费资源 工作 IT职场 好文分享 第1张
 
+!+[注释]+(https://github.com/VineLiu/Learn-/blob/master/TimLine%E6%88%AA%E5%9B%BE20180808160337.png)
+
 步骤如图：
 
 
